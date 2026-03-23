@@ -10,7 +10,7 @@
 <br>
 ※ 자유 커스텀이 가능하도록, 장바구니에서 고르고 구글스프레드 시트에 기입해주세요! <br>
 구글 스프레드시트 링크 첨부드립니다-선정 후 2일이내 시트작성 완료해주세요. 택배 발송이 지연됩니다.<br>
-(https://smartstore.naver.com/melbin28/category/2b32d89a47ee493d8789f7c18bcf5fa0?cp=1)<br>
+(https://smartstore.naver.com/melbin28/category/2b32d89a47ee493d8789f7c18bcf5fa0?cp=1](https://docs.google.com/forms/d/1Jus7argUfqVvz8wMAQeMxRR-kW23ZUVCuUSVo4aEFMI/edit?usp=forms_home&ouid=111869577026205081798&ths=true)<br>
 <br>
 ✅ 이런 분이 지원해주시면 좋겠습니다!!<br>
 ✔️ 셀프 네일아트 경험이 있는 분<br>
@@ -29,7 +29,7 @@
 ✔️ 단순 구매처 언급이 아닌, 빠른 배송, 친절한 응대, 구성품에 대한 만족도 및 전반적인 만족도 등을 기재<br>
 👉 과정 많은 후기일수록 네이버 노출에 유리합니다.<br>
 ✔️ 네일파츠 외에도 비즈,목걸이, 키링, 포인트소품 등 다양한 용도로 제작한 사례 완.전 환영합니다.<br>
-✔️ 내맘대로커스텀해서 제작이 가능하다 이런 문구도 좋습니다.<br>
+✔️ 내맘대로 커스텀해서 제작이 가능하다 이런 문구도 좋습니다.<br>
 ✔️ 셀프네일아트 추천 문구 환영합니다.<br>
 <br>
 <br>
